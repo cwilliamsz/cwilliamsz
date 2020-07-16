@@ -13,4 +13,4 @@ In my spare time I like to walk my dog 🐶, go to the gym 💪, travel 🌎, li
 
 ##
 
-[![Linkedin](https://i.stack.imgur.com/gVE0j.png) LinkedIn](https://www.linkedin.com/in/charles-william-🏳%EF%B8%8F%E2%80%8D🌈-8b957012a/) [![Medium](./Medium-14.png) Medium](https://medium.com/@cwilliamszd)
+[![Linkedin](https://i.stack.imgur.com/gVE0j.png) LinkedIn](https://www.linkedin.com/in/charles-william-🏳%EF%B8%8F%E2%80%8D🌈-8b957012a/)
